@@ -1,0 +1,7 @@
+The world end!
+
+THE WORLD IS DIE!
+
+YES! 
+
+THIS INFORMATION IS IMPORTANT!
